@@ -1,18 +1,18 @@
 Tihei mauri ora!
 
-Ko Ruahine te maunga, 
+Ko Ruahine te maunga
 
-Ko Rangitikei te awa,
+Ko Rangitikei te awa
 
-Ko Kurahaupo te waka,
+Ko Kurahaupo te waka
 
-Ko Ngati Apa te iwi,
+Ko Ngati Apa te iwi
 
-Ko Ngati Kauae te hapu,
+Ko Ngati Kauae te hapu
 
-Ko Parewanui te marae,
+Ko Parewanui te marae
 
-No Whanganui ahau,
+No Whanganui ahau
 
 Ko Jay Tihema toku ingoa
 
